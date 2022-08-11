@@ -1,3 +1,7 @@
+---
+title: "Hello World Of Fillerama"
+date: 2022-08-11
+---
 ## We're also Santa Claus!
 Why did you bring us here? You're going to do his laundry? Well, thanks to the Internet, I'm now bored with sex. Is there a place on the web that panders to my lust for violence? You guys realize you live in a sewer, right?
 
